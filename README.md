@@ -9,3 +9,6 @@ https://www.shortto.com/jiitconverge
 https://www.shortto.com/icsc2018
 
 https://www.shortto.com/ictac2018
+
+http://vidyut.cicejiit.com/
+
